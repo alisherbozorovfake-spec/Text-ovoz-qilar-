@@ -1,0 +1,2 @@
+# Text-ovoz-qilar-
+Tsgdhdbf
